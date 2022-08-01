@@ -1,0 +1,1 @@
+Once upon a time there lived a poor widow and her son Jack. One day, Jack’s mother told him to sell their only cow.
